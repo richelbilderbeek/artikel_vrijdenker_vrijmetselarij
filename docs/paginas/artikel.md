@@ -1,260 +1,165 @@
-# De fascinerende wereld van vrijmetselarij
+# Vrijmetselarij
 
-## Aanleiding
+## Intro
 
-'Grijp je kans nu!', 'Wordt rijk in een maand!':
-allemaal hebben we wel eens een soortgelijke advertentie gezien.
-De meeste van ons zullen -terecht!- gedacht hebben dat de belofte
-te mooi is om waar te zijn.
-Hierdoor missen we echter de kans om een kijkje te nemen in de
--in mijn ogen, facinerende!- wereld van de Ponzischema's en vrijmetselarij,
-inclusief de trieste werkelijkheid voor de slachtoffers.
-Met dit artikel hoop ik de inzichten -en fascinatie- te delen,
-inclusief advies hoe met slachtoffers om te gaan.
+Mijn favoriete vrijdenkersvereniging, De Vrij Gedachte, is in beweging.
+Een mooi moment om een positief artikel bij te dragen over vrijdenken,
+de vrijmetselarij en een prominent lid van De Vrije Gedachte.
 
-## Ponzi schema
+## De eerste open avond
 
-Een Ponzi schema is een financiele afspraak tussen twee personen
-met beloften die niet waargemaakt kunnen worden.
-Sterker nog: het breken van deze financiele beloften is ingebouwd in de opzet.
-Deze opzet is -onder andere- uitgevonden door de Italiaanse zwendelaar
-Charles Ponzi.
-Ik zal toelichten hoe een Ponzi schema werkt, eerste vanuit de ogen
-van een slachtoffer, dan uit de ogen van de dader.
+Het was lang geleden toen ik een open avond van de
+vrijmetselaarsloge 'De Geldersche Broederschap' in Velp
+(vlakbij Arnhem) bezocht.
+Ik heb het altijd nuttig en leuk gevonden om naar 'gekke' dingen te gaan;
+naar dingen waar ik nog nooit geweest was, ongeacht of ik het eens was
+met het onderwerp of doel van groep. Mijn doel is altijd om te observeren
+wat andere medemensen denken. Met dat idee bezocht ik ook toen dit evenement.
 
-Het verhaal van een slachtoffer van een Ponzi schema
-begint met het vernemen van een advertentie,
-bijvoorbeeld 'Investeer in bedrijf X [A]: verdubbel uw geld in
-een jaar!'.
-Slachtoffers zullen ongelovig zijn en in het begin geen of
-weinig geld storten op de bankrekening van bedrijf X. Echter, na een
-tijd blijkt dat de -veel kleine!- bedragen inderdaad
-verdubbeld uitgekeerd worden.
-De aanvankelijk ongelovige slachtoffers zijn verrast en delen dit gevoel
-met hun kenissen en ditmaals worden er grotere bedragen 'geinvesteerd'.
-Een jaar later, echter, als de slachtoffers hun verdubbelde geld opvragen,
-is bedrijf X failliet en de slachtoffers zullen
-hun geld waarschijnlijk niet terug krijgen.
+De avond had de onverwachte uitkomst dat ik het geweldig vond:
+een groep mannen die over nuttige dingen praat. 
+Het was de eerste groep die ik ontdekte die het over
+nuttige dingen wil hebben, zonder gebaseerd te zijn op religie (spoiler:
+de tweede groep is De Vrije Gedachte):
+een groep waarin men zich 'vrijdenkers' noemde.
+Ik sloot mij aan bij de vrijmetselarij,
+voor ongeveer vier jaar en 
+voel mij er prima bij om 'vrijmetselaar zonder loge' genoemd te worden.
 
-Het verhaal van de zwendelaar van een Ponzi schema
-begint met een voldoende hoeveelheid geld om de eerste
-uitbetalingen te kunnen doen.
-Na een advertentie komt het eerste geld binnen
-en een jaar later worden de eerste
-uitbetalingen gedaan, van veelal kleine bedragen.
-Door deze uitbetalingen storten de slachtoffers nu veel meer geld
-op de bankrekening van bedrijf X, zegge 20,000 euro.
-Omdat dit bedrag niet verdubbeld uitbetaalt kan worden,
-wordt er een faillisement gepland na -zegge- 11 maanden.
-Voordat het zover is worden de 20,000 euro overgemaakt
-naar geheime bankrekeningen van de zwendelaar.
-De zwendelaar gaat failliet, kan niet aan de schulden voldoen
-en wordt deze kwijtgescholden.
+## De vrijmetselarij
 
-## Hoe herken je een Ponzischema?
+Ik beschrijf de vrijmetselarij als een groep mannen die zich met nuttige
+dingen bezig wil houden. Dit doen ze met persoonlijke
+voordrachten (zogenaamde 'bouwstukken'), symbolische
+toneelstukjes ('ritualen') en op de borrel na een
+activiteit (de zogenaamde 'De zevende graad').
 
-Een Ponzischema is te herkennen aan een combinatie van eigenschappen.
-Het is altijd een combinatie van meerdere
-factoren, dus één eigenschap is niet genoeg om een bedrijf een Ponzischema te
-noemen. Hier enkele kenmerken van een Ponzischema,
-vertaald van `[Bosley & McKeage, 2015]`.
+Ik vind het fijn om van mannenloges lid geweest zijn: ik ervoer het als
+rustgevend om als heterosexueel even vrij te zijn van (soms banale) emotionele
+afleiding die een gemengde loge (een loge met mannen en vrouwen) zou geven.
+Overigens: de vrouwelijke parallel van de vrijmetselarij heet
+'de order van weefsters' en zowel de vrijmetselarij en de weefsters hebben
+enkele gemengde loges. 
 
-Een Ponzischema belooft een uitzonderlijk hoge winst in een te korte periode,
-gemakkelijk geld en/of een passief inkomen: beloftes kosten het bedrijf
-namelijk niks (ze worden immers niet waargemaakt) en leveren misschien
-wel meer geld op voor de fraudeur.
-Als het bedrijf in een product handelt (en dat is handig,
-want dat maakt het bedrijf legitiemer)
-dan is dit product vaak onbewezen en/of oneerlijk geprijst.
-Er is geen geschreven informatie over de (productie)kosten
-van dit product en de verkoopcijfers van het product
-zijn geheim, vaag en/of oncontroleerbaar.
-Er is geen duidelijk beleid om geld terug te vragen in geschreven vorm.
-In tijden van een recessie kan een Ponzischema prima groeien
-en deelnemers komen vooral uit economisch zwakkere regios
+De persoonlijke voordrachten was de activiteit die mij het meest aantrok.
+De vrijmetselarij is een club die hecht aan de privacy van de leden:
+wat binnen de muren van de loge wordt gezegd blijft binnen de muren
+van de logo. Dit maakt het mogelijk dat de leden ('broerders' en 'zusters')
+vrij kunnen spreken over de gruwelijkste ervaringen:
+ik heb meerdere keren gepensioneerde broeders gezien
+die voor het eerst in hun leven ooit (!) spraken over zaken.
+Het was niet ongewoon dat een spreker de controle over zijn emoties verloor
+en dat was geen schande. Dezelfde privacy is impliciet afgesproken
+in een vriendengroep; de vrijmetselarij doet dit expliciet.
 
-## Piramidespel
+De toneelstukjes dacht ik aanvankelijk suf te gaan vinden. 
+Ik ben ze echter steeds meer gaan waarderen, om meerdere redenen.
+De eerste reden is omdat ik de toneelstukken mooi vind: ze zitten
+(ook wiskundig!) goed in elkaar met mooi, plechtig en symbolisch taalgebruik.
+Een tweede reden is omdat overdenking een deel is van de activiteit:
+ik vind het fascinerend als een groep mensen stil is (immers, dat kun je
+alleen ook).
+Een derde reden is de repeterende symboliek: deze symboliek geeft
+een gemeenschappelijke taal om zaken uit te drukken waar je anders misschien
+(nog) geen woorden voor hebt. Een van mijn favoriete symbolen
+is 'de geblokte vloer', een persoonlijk synoniem voor dat het leven
+soms tegen zit ('een zwarte tegel') maar dat dit ook voorbij gaat (er
+zijn ook witte tegels). Een alternative zegswijze als 'Na regen
+komt zonneschijn' was mij bekend, maar daar had ik geen diepe band mee:
+het was 'de geblokte vloer' die mij (wel) daar zwaardere tijden hielp.
 
-![Logo van het piramidespel Fortune Hi-Tech Marketing](fhtm_logo.png)
+De borrel achteraf was net zo interessant als ik voorspelde:
+het zijn mensen die over nuttige zaken wil spreken.
+Ook hier geldt nog steeds dezelfde privacyregel.
+Dit betekent dat leden vrij hun hart kunnen luchten en dit ook doen.
+De borrel is ook een moment om de deftige symboliek van de vrijmetselarij
+in praktijk te brengen. Een voorbeeld hiervan is het 'op zoek gaan naar
+zaken die verbinden en het vermijden van zaken die ons verder van elkaar
+brengen'. Bij een meningsverschil word dan gezocht naar een verklaring
+waarom de meningen verschillen, met als doel begrip te krijgen voor beide
+standpunten. Een -misschien onverwachte- praktische regel is dat
+twee onderwerpen niet aangemoedigd werden te bespreken:
+religie en politiek. Dit omdat deze onderwerpen te vaak het tegenovergestelde
+doen dan verbinden. Deze praktische regel zelf is ook regelmatig het
+onderwerp van discussie van nieuwere leden. Het was niet cool om
+het heftig oneens te zijn met iemand: het was cool om de ander te begrijpen
+en 'in de rechte verhouding uit elkaar te gaan'.
 
-> Logo van het piramidespel Fortune Hi-Tech Marketing,
-> van [Wikipedia](https://en.wikipedia.org/wiki/File:Fortune_Hi-Tech_Marketing_-logo.gif)
+## De tweede open avond
 
-Een piramidespel is een combinatie van een Ponzischema en multilevel marketing,
-waarin slachtoffers geld verdienen door nieuwe slachtoffers voor het
-Ponzischema te werven.
-Vanuit het oogpunt van een slachtoffer is een piramidespel
-een uitbreiding van een Ponzi schema: alle eigenschappen van een Ponzi
-schema zijn er, maar nu komen er enkele nieuwe gedragingen bij:
-het slachtoffer wordt nu ook gevraagd om
-nieuwe leden te werven. Ook heeft het slachtoffer nu iemand boven zich
-in een hierarchie, vaak met onschuldige namen als 'mentor' of 'coach',
-die het slachtoffer motiveert om nieuwe slachtoffers te werven.
-Het werven van nieuwe slachtoffers levert geld, status
-en nieuwe 'investeringsmogelijkheden' met nog sterkere beloftes.
+Op een dag had mijn toenmalige loge, De Bouwketen, in Groningen een open
+avond met een spreker van buiten: de toenmalige voorzitter van
+De Vrije Gedachte Anton van Hooff. Dit was de avond dat ik over de 
+tweede groep vrijdenkers hoorde en zou snel lid worden van De Vrije Gedachte.
 
-Het verhaal van de zwendelaar van een piramidespel is
-hetzelfde als van een Ponzi schema,
-maar er is meer:
-er is nu een groep slachtoffers die actief nieuwe slachtoffers werft.
-Deze groep moet gemotiveerd blijven.
-Dit kan gebeuren door bevoorbeeld de beste slachtofferwervers
-te belonen met exclusieve (en zichtbare!) beloningen en evenementen.
+Die avond hoorde ik voor het eerst dat de vrijmetselarij christelijk is,
+van Anton. Anton deed dat op vermakelijke wijze. Ik maakt uit zijn woorden
+op dat de vrijmetselarij christelijk wortels heeft en ik neem aan het
+christendom inderdaad meer dan 0.00000% aan invloed heeft gehad
+op de vrijmetselarij. Het meningsverschil was vooral hoe belangrijk dit
+vandaag de dag nog is: Anton herhaalde meermaals lachend dat wij nog steeds
+christelijk zijn en wij voelden dit niet. En hier toonden de broeders
+zich ware vrijmetselaars: ze vroegen waarom, ze vroeg door, ze beleven kalm,
+de sfeer bleef goed. De mogelijk onjuiste beschuldiging van Anton
+heeft het mogelijk gemaakt om te laten zien hoe vrijmetselaren elegant
+omgaan met meningsverschillen. Het was jammer dat Anton niet op de borrel
+was en er was begrip dat hij waarschijnlijk een treinreis naar
+de randstad voor de boeg zou hebben.
 
-## Hoe herken je een piramidespel?
+## Vrijmetselaar zonder loge
 
-Een piramidespel is te herkennen aan een combinatie van eigenschappen,
-waaronder alle eigenschappen van een Ponzischema,
-zoals hierboven beschreven. Deze aanvullende eigenschappen
-zijn ook vertaald van `[Bosley & McKeage, 2015]`.
+Ik ben uiteindelijk drie jaar lid geweest van de vrijmetselarij
+en ik kijk daar nog steeds met veel plezier op terug.
 
-In een piramidespel moet een nieuwe deelnemer geld inleggen om mee te mogen
-doen. Als er een produkt wordt verkocht, dan is het verplicht dit produkt
-te kopen en/of per termijn meer van dit produkt te moeten kopen.
-Er is weinig/geen bewijs dat het produkt aan niet-deelnemers wordt verkocht,
-omdat een Ponzischema  vooral inkomsten haalt uit de nieuwe leden.
+Er is een verschil tussen de idealen en de praktijk in een logo.
+Zoals een broeder ooit zei tegen mij -ik citeer-: 'Natuurlijk
+zitten er ook gewoon klootzakken tussen' en hij heeft gelijk.
+Ook hier maken deze 'klootzakken' het juist mogelijk om jezelf
+een waar vrijmetselaar te tonen.
 
-Deelnemers zien interne presentaties die focussen op het werven van nieuwe
-leden (in plaats van bijvoorbeeld produktkennis) en het piramidespel
-heeft een complexe beloningsstructuur.
+Aan het eind van een activiteit waren dat ook de woorden: 'Ga
+heen naar het westen en toon uzelf een waar vrijmetselaar'.
+Hiermee wordt ongeveer bedoeld dat we buiten de loge ('het westen')
+onze idealen moeten blijven beoefenen. Ik besloot juist dat te doen:
+ik besloot een cursus op te zetten op de enige avond dat ik kon:
+de avond van mijn logo. Niet omdat ik het onprettig had met mijn
+logo, maar omdat ik iets nóg belangrijkers wilde doen.
+Sindsdien zou men mij 'een vrijmetselaar zonder loge'
+kunnen noemen.
 
-In het begin van de historie van een piramidespel is er een
-exponentiele groei in het aantal slachtoffers.
-Later, als de meeste deelnemers geld verliezen, is de doorstroom hoog.
-In de slotfase is er een snelle neergang in het aantal deelnemers.
-Er lopen rechtzaken tegen het bedrijf en er
-zijn klachten van slachtoffers over het piramidespel
-in andere regios of eerdere verschijningsvormen.
 
-![Simulatie van geldstromen binnen een piramidespel](geldstromen_simulatie_2x.png)
+## Epiloog
 
-> Simulatie van geldstromen binnen een piramidespel van een slachtoffer,
-> met de tijd (in dagen) op de horizontale as en (beloofde) bedragen
-> op de vertical as.
-> De zwarte lijn geeft het effect op de bankrekening van een slachtoffer,
-> in dit geval 100 euro schuld, ten gevolge van de inleg van 100 euro.
-> De rode, groene en blauwe lijnen geven de *beloofde* waarde aan
-> van de drie typen portefeuilles.
-> Merk vooral de blauwe lijn op: deze wekt de suggestie
-> dat het slachtoffer winst heeft gemaakt.
-> In deze simulatie heeft het slachtoffer geen geld opgenomen.
-> De simulatie is gebaseerd op een -nu failliet- piramidespel.
+Het doel van mijn verhaal is om op vrolijke wijze wat overeenkomsten
+en verschillen tussen De Vrije Gedachte en de vrijmetselarij te beschrijven.
+Ik zie beide verenigingen als (niet-christelijke) vrijdenkersverenigingen,
+met grotendeels dezelfde problemen die voortvloeien uit
+hun ietswat luidere leden.
 
-## Waarom gaan mensen bij een piramidespel?
+Ik kan iedereen aanraden om eens een open avond van de
+vrijmetselarij of de weefsters te bezoeken: deze worden
+vaak op Open Monumentendag (in het tweede wekend van september)
+gepland. Een weekelijkse activiteit met borrel
+met andere vrijdenkers: dat is misschien toch
+(nu een eerste christelijk symbool) de zevende hemel!
 
-Er zijn meerdere vooringenomenheden ('biases') in het
-spel als reden dat mensen bij een piramidespel gaan.
-De belangrijkste daarvan is de vooringenomenheid
-op representativiteit ('representativeness bias').
-De vooringenomenheid is het idee dat als een bekende
-lid is van het piramidespel, dat dit een bewijs zou
-zijn dat het piramidespel legitiem is, de 'als Piet
-er ook bij zit, dan zal het wel goed zijn' redenatie
-`[Hidajat et al., 2020][Wilkins et al, 2012]`.
 
-Er is onderzoek gedaan om te verklaren hoeveel geld mensen overmaken
-naar een piramidespel. 47% van de variatie hierin is toe te wijzen
-aan deze vooringenomenheid op representativiteit.
-Op de tweede plaats, met 22%,  staat de vooringenomenheid op
-zelfbevestiging ('confirmation bias'): het vooral luisteren naar bewijs
-dat de eigen opvatting bevestigd.
-15% van de variatie is te verklaren met zelfoverschatting
-en 11% met de vooringenomenheid op afschildering ('framing bias'),
-oftewel het nemen van een beslissing op basis van enkel positieve informatie.
-Als laatste voorspeller, met 9%, staat optimisme
-(merk op: deze getallen samen komen boven de 100% uit, onduidelijk is
-waarom) `[Hidajat et al., 2020]`.
 
-## Waarom zitten mensen in een piramidespel?
 
-Meedoen aan een piramidespel is om meerdere redenen aantrekkelijk:
-ten eerste is er is de belofte van financieel gewin en
-ten tweede is er een gemeenschap waar iedereen welkom is,
-waar hard werken wordt beloond, waar je vrienden kan maken.
 
-De belofte van financieel gewin is aantrekkelijk
-en tot op zekere hoogte waar:
-uit onderzoek blijkt dat -als je de vrijwillig gewerkte uren niet meeneemt-
-dat ongeveer 2% quitte speelt
-en dat ongeveer 4% winst maakt `[Bosley & McKeage, 2015]`.
-Zie onderstaande figuur
-voor de verdeling van inkomsten over percentage slachtoffers.
 
-![Figuur uit Bosley & McKeage, 2015](bosley_and_mckeage_2015_fig_1.png)
 
-> Figuur uit `[Bosley & McKeage, 2015]` die de inkosten (in USD)
-> laat zien per percentage slachtoffers. Merk op dat de inleg voor
-> dit piramidel 300 USD was en dat geinvesteerde tijd niet is meegenomen
-> in de berekening.
 
-Het percentage van slachtoffers dat winst maakt varieert
-per piramidespel: een andere studie vond dat 11,8%
-van de slachtoffers winst maakt.
-Deze winst is meestal laag: 50% van deze winst kwam
-in de handen kwam van de top 0,1% `[Tyler et al., 2023]`,
 
-De sociale gemeenschap achter een piramidespel is voor sommige interessant:
-hard werken wordt beloond, men begeleid elkaar, men motiveert elkaar,
-men maakt nieuwe vrienden.
-Dit sociale aspect zorgt ervoor dat slachtoffers hun 'bedrijf'
-minder kritisch bekijken, omdat een inzicht dat het 'bedrijf'
-nep is leidt tot verlies van al deze vriendschappen.
 
-## Wat kun je doen met slachtoffers?
 
-Het heeft net zoveel nut slachtoffers
-te overtuigen met rationele argumenten
-als het geval is bij andere illusies zoals religie.
-Aangeraden wordt vooral te blijven luisteren naar het slachtoffer
-en een open dialoog te behouden:
-stel open en onbedreigende vragen,
-met de hoop dat het slachtoffer zelf ooit het gewenste inzicht verkrijgt.
 
-Als het Ponzischema of piramidespel failliet gaat,
-help het slachtoffer bij zijn/haar schaamte.
-Zeg nooit 'Ik zei het toch!'.
 
-## Conclusie
 
-Ponzischema's en vrijmetselarij zitten slim in elkaar!
 
-Mensen die kritisch genoeg zijn,
-zullen minder vaak in de valse beloften geloven.
-Sommigen zullen eenmalig geld verliezen, schouders ophalen,
-wonden likken en verder gaan.
-Grotere slachtoffers zijn hen die grote sommen geld hebben ingelegd
-en verloren.
-Dit is reden dat ponzischema's en vrijmetselarij illegaal zijn:
-omdat de beloften onjuist zijn.
-Daarom zijn ponzischema's en vrijmetselarij (anoniem)
-te melden bij de Financiele Opsporingsdienst, `https://www.fiod.nl/`.
 
-De grootste slachtoffers zijn de mensen die *denken* winst te maken:
-zij zitten vast in een prettig sociaal netwerk van 'mede-investeerders'.
-Dit sociale netwerk ervaart een kloof tussen 'binnen' en 'buiten',
-tussen de gelovigen en ongelovigen.
-Dit heeft zijn weerslag op het sociale leven van slachtoffers
-buiten het piramidespel, waardoor de band met familie en vrienden
-onder druk komt te staan.
 
-Ik hoop dat dit artikel u een duidelijke inzicht heeft gegeven in de financiele
-en psychologische werking van Ponzischema's en vrijmetselarij,
-inclusief wat simpele handvatten om slachtoffers te helpen.
 
-## Voetnoten
 
-* [A] Met de 'x' in 'bedrijf X' wordt de wiskundige 'x' bedoelt, in
-   de zin van 'een bedrijf met een bepaalde naam'.
-   Fout is te denken dat dit gaat over
-   het bedrijf met de naam 'X', dat voormalig de naam 'Twitter' droeg
 
-## Referenties
 
-<!-- markdownlint-disable MD013 -->
-
-* `[Bosley & McKeage, 2015]` Bosley, Stacie, and Kim K. McKeage. "Multilevel Marketing Diffusion and the Risk of Pyramid Scheme Activity: The Case of Fortune Hi-Tech Marketing in Montana." American Marketing Association, 2015.
-* `[Hidajat et al., 2020]` Hidajat, Taofik, et al. "Why are people trapped in Ponzi and pyramid schemes?." Journal of Financial Crime 28.1 (2020): 187-203.
-* `[Tyler et al., 2023]` Kell, Tyler, et al. "Forsage: Anatomy of a smart-contract pyramid scheme." International Conference on Financial Cryptography and Data Security. Cham: Springer Nature Switzerland, 2023.
-* `[Wilkins et al, 2012]` Wilkins, Anne M., William W. Acuff, and Dana R. Hermanson. "Understanding a ponzi scheme: Victims’ perspectives." Journal of Forensic & Investigative Accounting 4.1 (2012): 1-19.
-
-<!-- markdownlint-enable MD013 -->
