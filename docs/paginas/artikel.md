@@ -133,8 +133,9 @@ kunnen noemen.
 Het doel van mijn verhaal is om op vrolijke wijze wat overeenkomsten
 en verschillen tussen De Vrije Gedachte en de vrijmetselarij te beschrijven.
 Ik zie beide verenigingen als (niet-christelijke) vrijdenkersverenigingen,
-met grotendeels dezelfde problemen die voortvloeien uit
-hun ietswat luidere leden.
+met grotendeels dezelfde problemen, zoals het vullen van besturen (hulde
+aan iedereen die zijn/haar vrije tijd hiervoor opoffert!)
+en hun luidere leden.
 
 Ik kan iedereen aanraden om eens een open avond van de
 vrijmetselarij of de weefsters te bezoeken: deze worden
@@ -142,15 +143,6 @@ vaak op Open Monumentendag (in het tweede wekend van september)
 gepland. Een weekelijkse activiteit met borrel
 met andere vrijdenkers: dat is misschien toch
 (nu een eerste christelijk symbool) de zevende hemel!
-
-
-
-
-
-
-
-
-
 
 
 
