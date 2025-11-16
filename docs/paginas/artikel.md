@@ -17,13 +17,13 @@ met het onderwerp of doel van groep. Mijn doel is altijd om te observeren
 wat andere medemensen denken. Met dat idee bezocht ik ook toen dit evenement.
 
 De avond had de onverwachte uitkomst dat ik het geweldig vond:
-een groep mannen die over nuttige dingen praat. 
+een groep mannen die over nuttige dingen praat.
 Het was de eerste groep die ik ontdekte die het over
 nuttige dingen wil hebben, zonder gebaseerd te zijn op religie (spoiler:
 de tweede groep is De Vrije Gedachte):
 een groep waarin men zich 'vrijdenkers' noemde.
 Ik sloot mij aan bij de vrijmetselarij,
-voor ongeveer vier jaar en 
+voor ongeveer vier jaar en
 voel mij er prima bij om 'vrijmetselaar zonder loge' genoemd te worden.
 
 ## De vrijmetselarij
@@ -39,7 +39,7 @@ rustgevend om als heterosexueel even vrij te zijn van (soms banale) emotionele
 afleiding die een gemengde loge (een loge met mannen en vrouwen) zou geven.
 Overigens: de vrouwelijke parallel van de vrijmetselarij heet
 'de order van weefsters' en zowel de vrijmetselarij en de weefsters hebben
-enkele gemengde loges. 
+enkele gemengde loges.
 
 De persoonlijke voordrachten was de activiteit die mij het meest aantrok.
 De vrijmetselarij is een club die hecht aan de privacy van de leden:
@@ -52,7 +52,7 @@ Het was niet ongewoon dat een spreker de controle over zijn emoties verloor
 en dat was geen schande. Dezelfde privacy is impliciet afgesproken
 in een vriendengroep; de vrijmetselarij doet dit expliciet.
 
-De toneelstukjes dacht ik aanvankelijk suf te gaan vinden. 
+De toneelstukjes dacht ik aanvankelijk suf te gaan vinden.
 Ik ben ze echter steeds meer gaan waarderen, om meerdere redenen.
 De eerste reden is omdat ik de toneelstukken mooi vind: ze zitten
 (ook wiskundig!) goed in elkaar met mooi, plechtig en symbolisch taalgebruik.
@@ -89,7 +89,7 @@ en 'in de rechte verhouding uit elkaar te gaan'.
 
 Op een dag had mijn toenmalige loge, De Bouwketen, in Groningen een open
 avond met een spreker van buiten: de toenmalige voorzitter van
-De Vrije Gedachte Anton van Hooff. Dit was de avond dat ik over de 
+De Vrije Gedachte Anton van Hooff. Dit was de avond dat ik over de
 tweede groep vrijdenkers hoorde en zou snel lid worden van De Vrije Gedachte.
 
 Die avond hoorde ik voor het eerst dat de vrijmetselarij christelijk is,
@@ -143,15 +143,4 @@ vaak op Open Monumentendag (in het tweede wekend van september)
 gepland. Een weekelijkse activiteit met borrel
 met andere vrijdenkers: dat is misschien toch
 (nu een eerste christelijk symbool) de zevende hemel!
-
-
-
-
-
-
-
-
-
-
-
 
