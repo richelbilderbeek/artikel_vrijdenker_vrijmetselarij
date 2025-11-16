@@ -1,0 +1,8 @@
+{
+  "aliveStatusCodes": [200, 403, 418, 500, 503],
+  "ignorePatterns": [
+    {
+      "pattern": "https://www.investor.gov/introduction-investing/general-resources/news-alerts/alerts-bulletins/investor-alerts/investor-30"
+    }
+  ]
+}
