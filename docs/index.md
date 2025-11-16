@@ -1,4 +1,4 @@
-# De fascinerende wereld van vrijmetselarij
+# Een ander groep vrijdenkers: de vrijmetselarij
 
 Het doel van dit artikel verhaal
 is om op vrolijke wijze wat overeenkomsten

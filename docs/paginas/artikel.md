@@ -1,4 +1,4 @@
-# Vrijmetselarij
+# Een ander groep vrijdenkers: de vrijmetselarij
 
 ## Intro
 
